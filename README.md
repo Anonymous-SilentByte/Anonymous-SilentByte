@@ -8,7 +8,7 @@ Absolutely! Here's the revised description:
    🚀 I'm Jashwanth Raju, a Tech Enthusiast & Aspiring Ethical Hacker!
 
 💡 **What's My Passion?**
-   🌈 Pursuing Cybersecurity & Mastering the Art of Ethical Hacking!
+   🌈 Pursuing Cybersecurity & Mastering the Art of Ethical Hacking! and AI (Artificial Inetelligence)
 
 🎯 **My Goal?**
    🌍 To Become an Ethical Hacker & Safeguard Digital Frontiers!
